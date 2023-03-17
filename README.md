@@ -1,5 +1,3 @@
-Yo I'm Force
-
 Reach me ejor40k@gmail.com
 
 <!---
